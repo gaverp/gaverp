@@ -8,3 +8,4 @@ Here are some ideas to get you started:
 - 🌱 I’m currently studying IT at ETSU
 - ⚡ My favorite hobbies include: Gaming, Hunting, Fishing, Reading
 
+I can see this!
